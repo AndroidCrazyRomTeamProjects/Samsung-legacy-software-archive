@@ -1,0 +1,1 @@
+Just a repository for samsung legacy software archive
